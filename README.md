@@ -1,1 +1,1 @@
-# VRIdeas
+# Ideas
